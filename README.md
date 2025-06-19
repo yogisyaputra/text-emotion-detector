@@ -92,7 +92,7 @@ Atau diskusi bareng saya via LinkedIn: [linkedin.com/in/yogisyaputra](https://li
 
 ## 📸 Demo
 
-![](screenshot.png)
+Linke Demo [here](https://youtube.com/shorts/1H-WDQ0gWwg?feature=share)
 
 ---
 
